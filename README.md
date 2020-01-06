@@ -3,7 +3,7 @@ Perfect repo for lazy people
 
 Do you consider posting pictures in Social Networking Sites as tiring work ??
 
-Do you want a more convenient way of posting your pictures on SNS like Facebook??
+Do you want a more convenient way of posting your updates on SNS like Facebook??
 
 Then this is the perfect one for you.
 
